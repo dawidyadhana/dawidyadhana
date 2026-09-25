@@ -1,6 +1,6 @@
 ## Hi there 👋
 
-- 📫 How to reach me: DAFFA001@e.ntu.edu.sg
+- 📫 How to reach me: dawidyadhana@gmail.com
 - 😄 Pronouns: he/him
 
 <!--
